@@ -1,1 +1,1 @@
-# ImKennyYip.github.io
+# NotePad Privacy - policy
